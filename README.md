@@ -1,4 +1,4 @@
-## Hi there 👋
+## Namaste!
 
 # Kanaka K K
 
